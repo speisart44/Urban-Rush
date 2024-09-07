@@ -1,0 +1,1 @@
+Mini games in the game play parkour and other mini games online. There are 2 teams to choose from: Green, Blue. You can also interfere with other players in mini-games with weapons to choose from: bat, knife, zeus, kick.
